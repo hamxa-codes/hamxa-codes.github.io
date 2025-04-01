@@ -1,1 +1,1 @@
-# hamxa-codes.github.io
+# welcome to fynix.me
